@@ -1,2 +1,1 @@
-# hello-world
-ANOTHERONE/ANOTHERONE/ANOTHERONE/ANOTHERONE/ANETHERONE
+damn ni**a you're fine
